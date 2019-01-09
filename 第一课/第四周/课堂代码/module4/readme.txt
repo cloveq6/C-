@@ -1,0 +1,1 @@
+Performing operations in a ¡°natural¡± manner
